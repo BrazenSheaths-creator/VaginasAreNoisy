@@ -1,5 +1,7 @@
 # VaginasAreNoisy
 
+Also find us on Reddit: https://www.reddit.com/user/BrazenSheaths/comments/1vysb6v/vaniverse_the_van_factset/
+
 Imagine if vaginal flatulence were a constant and ubiquitous phenomenon inherent to all fully-formed and mature vaginas, as inevitable as the propensity of unsupported male genitals to sway pendulously without any voluntary control due simply to physics acting on the structure. Suppose that vaginal flatulence is: \
 — normative and has always been so, meaning society has always been aware of it and accounted for it linguistically, socially, and otherwise, though precisely how depends on specifics of culture and material conditions. \
 — constant and loud, occurring tens to hundreds of times per hour depending on the individual and what she is doing, easily reaching 50 to 60 decibels. \
@@ -41,3 +43,8 @@ When analyzing how this vaginal flatulence reality relates to observable history
 Finally, understand that vaginal flatulence serving as an explanation for certain historical patterns does not justify those patterns or suggest they were inevitable. Women's pervasive historical subordination, belittlement, and loss of agency were not necessitated by blating; they were enabled by it. Patriarchal power structures, in which primarily male voices control the narrative and define what natural phenomena mean, deployed blating, alongside other semantically laden female phenomena (menstruation, lactation, sexuality, fertility), as a tool to define and constrain women's agency and worth. \
 Blating could have been culturally framed as a marker of power and presence, elevating women, much as it was often framed as a mark of fertility and uncontrolled power. It could have been treated as physiologically irrelevant to human capability and dignity. Full sexual equality was materially possible from the beginning, even with ubiquitous, audible vaginal flatulence. History took the path it did because patriarchal societies benefited from women's subordination and instrumentalized blating (and other bodily realities) toward that end through meaning making. \
 The liberation of women coincided with industrialization and the availability of effective bimes, but not because bimes solved an inherent problem. Rather, bimes gave women control over the meaning and management of their own blating. They could choose tegnance or integnance; the choice was no longer imposed. This reclamation of agency over a previously weaponized aspect of their bodies was instrumental to their broader emancipation.
+
+Other Key Phrases
+— Vaginas are noisy
+— Queefing is constant and loud
+— Noisy vaginas
