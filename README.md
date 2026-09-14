@@ -47,4 +47,18 @@ The liberation of women coincided with industrialization and the availability of
 Other Key Phrases
 — Vaginas are noisy
 — Queefing is constant and loud
+— Vaginal flatulence is constant and loud
+— Constant queefing
+— Constand vaginal flatulence
+— Queefing as normal
+— Queefing as universal
+— Queefing is normal
+— Vaginal flatulence as normal
+— Vaginal flatulence is normal
+— Vaginal flatulence as universal
+— Queefing is normal
+— Thought experiment
+— What if
+— What-if
+— Scenario
 — Noisy vaginas
