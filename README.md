@@ -56,7 +56,6 @@ Other Key Phrases
 — Vaginal flatulence as normal
 — Vaginal flatulence is normal
 — Vaginal flatulence as universal
-— Queefing is normal
 — Thought experiment
 — What if
 — What-if
